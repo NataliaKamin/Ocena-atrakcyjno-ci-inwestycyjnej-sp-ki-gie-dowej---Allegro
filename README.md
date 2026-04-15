@@ -1,0 +1,1 @@
+# Ocena-atrakcyjno-ci-inwestycyjnej-sp-ki-gie-dowej---Allegro
